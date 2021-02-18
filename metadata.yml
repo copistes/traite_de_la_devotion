@@ -1,0 +1,14 @@
+---
+title: Traité de la vraie Dévotion à la Sainte Vierge
+author: Saint Louis-Marie Grignon de Montfort
+rights: LGPL Licence, original text is plublic domain.
+lang: fr
+tags: [Religion, Mary, Montfort]
+abstract: |
+  Traité de la vraie dévotion à la sainte Vierge, par le vénérable serviteur de Dieu Louis-Marie Grignion de Montfort,... 11e édition [précédée d'une préface du P. F. W. Faber] Poitiers : H. Oudin , 1886
+mainfont: DejaVu Sans
+
+# Filter preferences:
+# - pandoc-crossref
+linkReferences: true
+---
