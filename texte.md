@@ -106,6 +106,7 @@ O hauteur incompréhensible ! O largeur ineffable ! O grandeur démesurée ! O a
 Toute la terre est pleine de sas noire, particulièrement chez les Chrétiens, où elle est prise pour tutélaire et protectrice en plusieurs royaumes, provinces, diocèses et villes. Combien de cathédrales consacrées à Dieu sous son nom ! Point d’église sans autel en son honneur ; point de contrée ni de canton où il n’y ait quelqu’une de ses images miraculeuses, om toutes sortes de mais sont guéris et toutes sortes de biens obtenus. Tant de confréries et congrégations en son honneur ! Tant d’Ordres religieux sous son nom et sa protection ! Tant de confrères et sœurs de toutes les confréries, tant de religieux et religieuses qui publient ses louanges et qui annoncent ses miséricordes ! Il n’y a pas un petit enfant qui, en bégayant l’Ave, Maria, ne la loue ; il n’y a guère de pécheur qui, en son endurcissement même n’ait en elle quelque étincelle de confiance ; il n’y a pas même de démon dans les enfers qui, en la craignant, ne la respecte.
 
 Après cela, il faut dire, en vérité, avec les Saints :
+
 > « De Maria nunquam satis …  » 
 
 >« On n’a point encore assez loué, exalté, honoré, aimé et servi Marie. » 
@@ -119,6 +120,7 @@ Elle a mérité encore plus de louanges, de respects, d’amour et de services. 
 `[Ps. XLIV, 14.]`
 
 comme si toute la gloire extérieure qui lui rendent à l’envi le ciel est la terre n’était rien, en comparaison de celle qu’elle reçoit au dedans par le Créateur, et qui n’est point connue des petites créatures, qui ne peuvent pénétrer le secret des secrets du Roi. Après cela, il faut nous écrier avec l’Apôtre : 
+
 > « Nec oculus vidit, nec auris audivit, nec in cor hominis ascendit »
 
 >« Ni l’œil n’a vu, ni l’oreille n’a entendu, ni le cœur de l’homme n’a compris les beautés, les grandeurs et excellences de Marie »
@@ -126,6 +128,7 @@ comme si toute la gloire extérieure qui lui rendent à l’envi le ciel est la 
 `[I. Cor. II, 9.]`
 
 le miracle des miracles de la grâce, de la nature et de la gloire. Si vous voulez comprendre la Mère, dit un Saint, comprenez le Fils, car c’est une digne Mère de Dieu: 
+
 > « Hic taceat omnis lingua..  »
 
 >« Qu’ici toute langue demeure muette. »
@@ -170,7 +173,8 @@ Si Moïse, par la force de sa prière, arrêta la colère de Dieu sir les Israé
 
 Marie commande dans le ciel aux Anges et aux Bienheureux. Pour recompense de son humilité profonde, Dieu lui a donné le pouvoir et la commission de remplir de Saints les trônes vides dont les anges apostats sont tombés par orgueil. Telle est la volonté du Très-Haut, qui exalte les humbles, que le Ciel, la terre et les enfers pleins, bon gré, mal gré, aux commandements de l’humble Marie, qu’il a faite Souveraine di Ciel et de la terre, la générale de ses armées, la trésorière de ses trésors, la dispensatrice de ses grâces, l’ouvrière de ses grandes merveilles, la réparatrice du genre humain, la médiatrice des hommes, l’exterminatrice des ennemis de Dieu et la fidèle compagne de ses grandeurs et de ses triomphes.
 
-Dieu le Père veut toujours avoir des enfants par Marie jusque’à la consommation du monde et il lui dit ces paroles: 
+Dieu le Père veut toujours avoir des enfants par Marie jusque’à la consommation du monde et il lui dit ces paroles:
+
 > «  In Jacob inhabita »
 
 > «  Demeurez en Jacob »
@@ -184,6 +188,7 @@ Comme dans l’ordre naturel il faut qu’un enfant ait un père et une mère, d
 Le signe le plus infaillible et le plus indubitable pour distinguer un hérétique, un homme de mauvaise doctrine, un réprouvé, d’avec un prédestiné, c’est que l’hérétique et le réprouvé n’ont que du mépris ou de l’indifférence pour la très sainte Vierge, tâchant, par leur paroles et exemples, d’en diminuer le culte et l’amour, ouvertement ou en cachette, quelquefois sous de beaux prétextes. Hélas ! Dieu les Père n’a point dit à Marie de faire sa demeure en eux, parce qu’ils sont des Ésaüs.
 
 Dieu le Fils veut se former et, pour ainsi dire, s’incarner tous les jours, par sa chère Mère, dans ses membres, et il lui dit:
+
 >  « In Israel hereditare »
 
 > « Ayez Israël pour héritage. » 
@@ -193,6 +198,7 @@ Dieu le Fils veut se former et, pour ainsi dire, s’incarner tous les jours, pa
 C’est comme s’il disait : Dieu mon Père m’a donné pour héritage toutes les nations de la terre, tous les hommes bons et mauvais, prédestinés et réprouvés ; je conduirai les uns par la verge d’or et les autres par la verge de fer ; je serai le père et l’avocat des uns, le juste vengeur des autres, et le juge de tous : mais pour vous, ma chère Mère, vous n’aurez pour votre héritage et possession que les prédestinés, figurés par Israël ; et, comme leur bonne mère, vous les enfanterez, les élèverez et, comme leur souveraine, vous les conduirez, gouvernerez et défendrez.
 
 Un homme et un homme est né en elle, dit le Saint-Esprit :
+
 > « Homo et homo natus est in ea » 
 
 `[Ps. LXXXVI, 3.]`
@@ -210,6 +216,7 @@ De plus Jésus-Christ étant à présent autant que jamais le fruit de Marie, co
 Saint Augustin, se surpassant lui-même, et tout ce que je viens de dire, affirme que tous les prédestinés, pour être conformes à l’image du Fils de Dieu, sont en ce monde cachés dans le sein de la très sainte Vierge, où ils sont gardés, nourris, entretenus et agrandis par cette bonne Mère, jusqu’à ce qu’elle les enfantes à la gloire, après la mort, qui est proprement le jour de leur naissance, comme l’Église appelle la mort des justes. O mystère de grâce inconnu aux réprouvés, et peu connu des prédestinés !
 
 Dieu le Saint-Esprit veut se former en elle et par elle des élus, et lui dit :
+
 > In electis meis mitte radices
 
 `[Eccli. XXIV, 13.]`
