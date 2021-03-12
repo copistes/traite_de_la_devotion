@@ -345,9 +345,76 @@ Pour obtenir de votre miséricorde une véritable dévotion à votre sainte Mèr
 >
 > Christe Jesu, amabilis, Domine, cur amavi, quare concupivi omni vita mea quidquam præeter et Jesum Deum meum ? Ubi eram quando tecum mente non eram ? Jam ex hoc nunc, omnia desideria mea, incalescite et effluite in Dominum Jesum ; currite, satis hactenus tardastis ; properate quò pergistis ; quærite quem quæritis. Jesu, qui non amat te, anathema sit ; qui te non amat, amaritudinibus repleatur... O dulcis Jesu, te amet, in te delectur, te admiretur omnis sesnus bonus tuæ conveniens laudi. Deus cordis mei et pars mea, Christe Jesus, deficiat cor meum spiritu suo, et vivas tu in me, et concalescat spiritu suo, et vivas tu in me, et concalescat spiritu meo vivus carbo amoris tui, et excrescat in ignem perfectum ; ardeat jugiter in ara cordis mei, ferveat in medullis meis, flagret in absconditis animæ meæ ; in die consummationis meæ consummatus inveniar apud te. , Amen.
 
-> Vous êtes, ô Jésus, le Christ du Seigneur, mon père saint, mon Dieu plein de miséricorde, mon roi infiniment grand ; vous êtes mon pasteur charitable, mon unique maître, mon aide plein de bonté, mon bien-aimé d'une beauté ravisante, mon pain de vie, mon prêtre éternel ; vous êtes mon guide vers la patrie, ma vraie lumière, ma douceur toute sainte, ma voie droite et sans détour; vous êtes ma sagesse brillante par son éclat, ma simplicité pure et sans tache, ma paix et ma douceur ; vous êtes enfin toute ma sauvegarde, mon héritage précieux, mon salut éternel.
+> Vous êtes, ô Jésus, le Christ du Seigneur, mon père saint, mon Dieu plein de miséricorde, mon roi infiniment grand ; vous êtes mon pasteur charitable, mon unique maître, mon aide plein de bonté, mon bien-aimé d'une beauté ravissante, mon pain de vie, mon prêtre éternel ; vous êtes mon guide vers la patrie, ma vraie lumière, ma douceur toute sainte, ma voie droite et sans détour; vous êtes ma sagesse brillante par son éclat, ma simplicité pure et sans tache, ma paix et ma douceur ; vous êtes enfin toute ma sauvegarde, mon héritage précieux, mon salut éternel.
 >
-> O Jésus-Christ, aimable Maître, pourquoi, dans toute ma vie, ai-je aimé, pourquoi ai-je désiré autant de chose que vous ? Jésus mon Dieu, où étais-je, quand je ne pensais pas à vous ? Ah ! du moins à partir de ce moment que mon coeur n'ait de désirs et d'ardeurs que pour le Seigneur Jésus ; qu'il se dilate pour n'aimer que lui seul. Désirs de mon âme, courez désormais, c'est assez de retard ; hâtez-vous d'atteindre le but auquel vous aspirez : cherchez en vérité celui que vous cherchez. O Jésus, anathème a qui ne vous aime pas ! que celui qui ne vous aime pas soir rempli d'amertume ! O doux Jésus, soyez l'amour, les délices et l'admiration XX
-
+> O Jésus-Christ, aimable Maître, pourquoi, dans toute ma vie, ai-je aimé, pourquoi ai-je désiré autant de chose que vous ? Jésus mon Dieu, où étais-je, quand je ne pensais pas à vous ? Ah ! du moins à partir de ce moment que mon cœur n'ait de désirs et d'ardeurs que pour le Seigneur Jésus ; qu'il se dilate pour n'aimer que lui seul. Désirs de mon âme, courez désormais, c'est assez de retard ; hâtez-vous d'atteindre le but auquel vous aspirez : cherchez en vérité celui que vous cherchez. O Jésus, anathème a qui ne vous aime pas ! que celui qui ne vous aime pas soir rempli d'amertume ! O doux Jésus, soyez l'amour, les délices et l'admiration de tout cœur dignement consacré à votre gloire. Dieu de mon cœur et mon partage, divin Jésus, que mon cœur tombe dans une sainte défaillance, et soyez vous-même ma vie ; que dans mon âme s'allume un charbon brulant de votre amour, et qu'il y soit le principe d'un incendie tout divin ; qu'il brûle sans cesse mon être ; qu'il consume le fond de mon âme : qu'enfin au jour de ma mort, je paraisse devant vous tout consommé dans votre amour. Ainsi soit-il.
 
 J'ai voulu mettre en latin cette admirable oraison de Saint Augustin, afin que les personnes qui entendent le latin la disent tous les jours pour demander l'amour de Jésus, que nous cherchons par la divine Marie.
+
+*Seconde vérité*. Il faut conclure de ce que Jésus-Christ est à notre égard, que nous ne sommes point à nous, comme dit l'Apôtre, mais tous entiers à lui, comme ses membres et ses esclaves qu'il a acheté infiniment cher, par le prix de tout son sang. Avant le Baptême, nous étions au démon comme ses esclaves ; et le Baptême nous a rendu les véritables esclaves de Jésus-Christ, qui ne doivent vivre, travailler et mourir qu pour fructifier par ce Dieu-Homme, le glorifier en notre corps et le faire régner en notre âme, parce que nous sommes sa conquête, son peuple acquis et son héritage. C'est pour la même raison que le Saint-Esprit nous compare : 1° à des arbres plantés le long des eaux de la grâce, dans le champ de l'Église, qui doivent donner leurs fruits en leur temps ; 2° aux branches d'une vigne dont Jésus-Christ est le cep ; qui doivent rapporter de bon raisins ; 3° au un troupeau dont Jésus-Christ est le pasteur, qui doit se multiplier et donner du lait ; 4° à une bonne terre dont Dieu est le laboureur, et dans laquelle la semence se multiplie et rapporte trente, soixante, cent pour un. Jésus-Christ a donné sa malédiction au figuier infructueux, et porté condamnation contre le serviteur inutile qui n'aurait pas fait valoir son talent. Tout cela nous prouve que Jésus-Christ veut recevoir quelques fruits de nos chétives personnes, savoir : nos bonnes œuvre, parce que ces bonnes œuvres lui appartiennent uniquement:
+
+> Creati in operibus bonis in Christo Jesu.
+
+> Créé dans les bonnes œuvres en Jésus-Christ
+
+Ces paroles montrent que Jésus-Christ est l'unique principe et doit être l'unique fin de toutes nos bonnes œuvres, et que nous le devons servir, non seulement comme des serviteurs à gages, mais comme des esclaves d'amour. Je m'explique.
+
+Il y a deux manière ici-bas d'appartenir à un autre et de dépendre de son autorité, savoir : la simple servitude et l'esclavage ; ce qui fait ce que nous appelons un serviteur et un esclave.
+
+Par la servitude commune parmi les Chrétiens, un homme s'engage à en servir un autre pendant un certain temps, moyennant un tel gage ou une telle récompense.
+
+Par l'esclavage, un homme est entièrement dépendant d'un autre pour toute sa vie, et doit servir son maître, sans en prétendre aucun gage ni récompense, comme une de ses bêtes sur laquelle il a droit de vie et de mort.
+
+Il y a trois sortes d'esclavage: un esclavage de nature, un esclavage de contrainte et un esclavage de volonté. Toutes les créatures sont des esclaves de Dieu en la première manière :
+
+> Domini est terra et plenitudo ejus.
+
+`Ps. XXIII, 1.`
+
+Les démons et les damnés en la seconde ; les Justes et les Saints en la troisième. L'esclavage de volonté est le plus glorieux à Dieu, qui demande le cœur, qui regarde le cœur et qui s'appelle le Dieu du cœur, ou de la volonté amoureuse, parce que , par cet esclavage, on fait choix, par-dessus toutes choses, de Dieu et de son service, quand même la nature n'y obligerait pas.
+
+Il y a une totale différence entre un serviteur et un esclave. 1° Un serviteur ne donne pas tout ce qu'il est, tout ce qu'il possède, et tout ce qu'il peut acquérir par autrui ou par soi-même ; mais l'esclave se donne tout entier, avec tout ce qu'il possède et tout ce qu'il peut acquérir, sans aucune exception. 2° Le serviteur exige des gages pour les services qu'il rend à son maître; mais l'esclave n'en peut rien exiger, quelque assiduité, quelque industrie, quelque force qu'il ait à travailler. 3° Le serviteur peut quitter son service quand il voudra, ou au moins quand le temps de son service aura expiré; mais l'esclave n'est pas en droit de quitter son maître quand il voudra. 4° Le maître du serviteur n'a sur lui aucun droit de vie et de mort, en sorte que s'il le tuait comme une de ses bêtes de charge, il commettrait un homicide injuste; mais le maître de l'esclave a, par les lois, droit de vie et de mort sur lui, en sorte qu'il peut le vendre à qui il voudra, ou le tuer, comme, sans comparaison, il ferait de son cheval. 5° Enfin, le serviteur n'est que pour un temps au service d'un maître, et l'esclave, pour toujours.
+
+Il n'y a rien parmi les hommes qui nous fasse plus appartenir à un autre que l'esclavage; il n'y a rien aussi parmi les Chrétiens qui nous fasse plus appartenir à Jésus-Christ et à sa Sainte Mère que l'esclavage de volonté, selon l'exemple de Jésus-Christ même, qui a pris forme d'esclave pour notre amour:
+
+> Formam servi accipiens
+
+ `Epît. aux Philip. II, 7.`
+ 
+ et de la Sainte Viergen qui s'est dite le servante et l'esclave du Seigneur. L'Apôtre s'appelle par honneur
+ 
+ > Servus Christi
+ 
+  `Epît. aux Galat. I, 10 et ailleurs.`
+  
+  Les Chrétiens sont appelés plusieurs fois dans l'Écriture sainte *servi Christi*; ce mot de *servus*, selon la remarque très juste qu'a faite un grand homme, ne signifiait autrefois qu'un esclave, parce qu'il n'y avait point encore de serviteurs comme ceux d'aujourd'hui, les maîtres n'étant servis que par des esclaves ou affranchis: ce que le Catéchisme du saint Concile de Trente, pour ne laisser aucun doute que nous sommes esclaves de Jésus-Christ, exprime par un terme qui n'est pas équivoque, en nous appelant *mancipiat Christi*, "esclaves de Jésus-Christ".
+  
+Cela posé, je dis que nous devons être à Jésus-Christ et le servir, non seulement comme des serviteurs mercenaires, mais comme des esclaves d'amour, qui, par l'effet d'une grande charité, se donnent à lui et s'engagent à le servir en qualité d'esclaves, pour l'honneur seul de lui appartenir. Avant le Baptême, nous étions esclaves du démon : le Baptême nous a rendu esclave de Jésus-Christ : ou il faut que les Chrétiens soient esclaves du démon ou il faut qu'ils soient esclaves de Jésus-Christ.
+
+Ce que je dis absolument de Jésus-Christ, je le dit relativement de la Sainte Vierge. Jésus-Christ l'ayant choisie pour la compagne indissoluble de sa vie, de sa mort, de sa gloire et de sa puissance au Ciel et sur la terre, lui a donné par grâce, relativement à sa Majesté, tous les mêmes droits et privilèges qu'il possède par nature:
+
+> Quidquid Deo convenit per naturam, Mariœ convenit per gratiam.
+
+> Tout ce qui convient à Dieu par nature, convient à Marie par grâce.
+
+disent les Saints : en sorte que, selon eux, n'ayant tous deux que la même volonté et la même puissance, ils ont tous deux les mêmes sujets, serviteurs et esclaves.
+
+On peut donc, suivant selon les sentiments des Saints et de plusieurs grands hommes, se dire et se faire l'esclave de la très Sainte Vierge, afin d'être par là plus parfaitement l'esclave de Jésus-Christ. La Sainte Vierge est le moyen dont notre Seigneur s'est servi pour venir à nous; c'est aussi le moyens dont nous devons nous servir pour aller à lui. Marie n'est pas comme les autres créatures, lesquelles, si nous nous y attachions, pourraient plutôt nous éloigner de Dieu que nous en approcher; la plus forte inclination de Marie est de nous unir à Jésus-Christ, son Fils; et la plus forte inclination du Fils et que l'on vienne à Lui par sa sainte mère; et c'est lui faire honneur et plaisir que d'en agir ainsi, comme se serait faire honneur et plaisir à un roi, si, pour devenir plus parfaitement son sujet et son esclave, on se faisait esclave de la reine. C'est pourquoi les saints Pères et saint Bonaventure après eux, disent que la Sainte Vierge est le chemin pour aller à Notre-Seigneur:
+
+> Via veniendi ad Christum est appropinquare ad illam.
+
+`Pseautier de la Sainte Vierge, S. Bonaventure`
+
+De plus, si comme j'ai dit, la sainte Vierge est la reine et souveraine du Ciel et de la terre :
+
+> Imperio Dei omnia subjiciuntur et Virgo ; ecce imperio Virginis omnia subjiciuntur et Deus,
+
+disent saint Anselme, saint Bernard, saint Bernardin, saint Bonaventure, n'a-telle-pas autant de sujets et d'esclaves qu'il n'y a de créatures ? Mais n'est-il pas raisonnable que, parmi tant d'esclaves de contrainte, il y en ait d'amour, qui, de plein gré, choisissent, en qualité d'esclave, Marie pour leur Souveraine ? Quoi ! Les hommes et les démons auraient leurs esclaves volontaires, et Marie n'en aurait point ? un roi tiendra à l'honneur que la reine, sa compagne, ait des esclaves sur qui elle ait droit de vie et de mort, parce que l'honneur et la puissance de l'un est l'honneur et la puissance de l'autre ; et l'on pourrait croire que Notre-Seigneur, qui, comme le meilleur de tous les fils, a fait part de toute sa puissance à sa sainte Mère, trouve mauvais qu'elle ait des esclaves ? A-t-il moins de respect et d'amour pour sa Mère que Assuérus pour Esther, et que Salomon pour Bethsabée ? Qui oserait le dire et même le penser ?
+
+Mais où est-ce que ma plume me conduit ? Pourquoi m'arrêter ici à prouver une chose si visible ? Si l'on ne veut pas qu'on se dise esclave de la sainte Vierge, qu'importe ! Qu'on se fasse et qu'on se dise esclaves de Jésus-Christ, c'est l'être de la sainte Vierge, puisque Jésus est le fruit et la gloire de Marie. C'est ce qu'on fait parfaitement par la dévotion dont nous parlerons dans la suite.
+
+
+
+
+
+
