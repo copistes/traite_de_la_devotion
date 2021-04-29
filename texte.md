@@ -115,7 +115,7 @@ Elle a mérité encore plus de louanges, de respects, d’amour et de services. 
 
 > « Toute la gloire de la Fille du Roi est au dedans »
 
-`[Ps. XLIV, 14.]`
+`Ps. XLIV, 14.`
 
 comme si toute la gloire extérieure qui lui rendent à l’envi le ciel est la terre n’était rien, en comparaison de celle qu’elle reçoit au dedans par le Créateur, et qui n’est point connue des petites créatures, qui ne peuvent pénétrer le secret des secrets du Roi. Après cela, il faut nous écrier avec l’Apôtre : 
 
@@ -123,7 +123,7 @@ comme si toute la gloire extérieure qui lui rendent à l’envi le ciel est la 
 
 >« Ni l’œil n’a vu, ni l’oreille n’a entendu, ni le cœur de l’homme n’a compris les beautés, les grandeurs et excellences de Marie »
 
-`[I. Cor. II, 9.]`
+`I. Cor. II, 9.`
 
 le miracle des miracles de la grâce, de la nature et de la gloire. Si vous voulez comprendre la Mère, dit un Saint, comprenez le Fils, car c’est une digne Mère de Dieu: 
 
@@ -177,7 +177,7 @@ Dieu le Père veut toujours avoir des enfants par Marie jusque’à la consommat
 
 > «  Demeurez en Jacob »
 
-`[Eccli. XXIV, 13.]`
+`Eccli. XXIV, 13.`
 
 c’est-à-dire faite votre demeure et résidence dans mes enfants prédestinés, figurés par Jacob, et non point dans les enfants du démon et les réprouvés, figurés pas Ésaü.
 
@@ -191,7 +191,7 @@ Dieu le Fils veut se former et, pour ainsi dire, s’incarner tous les jours, pa
 
 > « Ayez Israël pour héritage. » 
 
-`[Eccli. XXIV, 13]`
+`Eccli. XXIV, 13`
 
 C’est comme s’il disait : Dieu mon Père m’a donné pour héritage toutes les nations de la terre, tous les hommes bons et mauvais, prédestinés et réprouvés ; je conduirai les uns par la verge d’or et les autres par la verge de fer ; je serai le père et l’avocat des uns, le juste vengeur des autres, et le juge de tous : mais pour vous, ma chère Mère, vous n’aurez pour votre héritage et possession que les prédestinés, figurés par Israël ; et, comme leur bonne mère, vous les enfanterez, les élèverez et, comme leur souveraine, vous les conduirez, gouvernerez et défendrez.
 
@@ -199,7 +199,7 @@ Un homme et un homme est né en elle, dit le Saint-Esprit :
 
 > « Homo et homo natus est in ea » 
 
-`[Ps. LXXXVI, 3.]`
+`Ps. LXXXVI, 3.`
 
  Selon l’explication de quelques Pères, le premier homme qui est né en Marie est l’Homme Dieu, Jésus-Christ ; le second est un homme pur, enfant de Dieu et de Marie par adoption. Si Jésus-Christ le Chef des hommes est né en elle, les prédestinés, qui sont les membres de ce Chef, doivent aussi naître en elle par une suite nécéssaire. Une même mère ne met pas au monde la tête ou le chef sans les membres, ni les membres sans la tête : autrement ce serait un monstre de nature ; de même, dans l’ordre de la grâce, le chef et le membres naissent d’une même mère : et si un membre du corps mystique de Jésus-Christ, c’est-à-dire un prédestiné, naissait d’une autre mère que Marie qui a produit le Chef, ce ne serait pas un prédestiné, ni un membre de Jésus-Christ, mais un monstre dans l’ordre de la grâce.
 
@@ -209,7 +209,7 @@ De plus Jésus-Christ étant à présent autant que jamais le fruit de Marie, co
 
 > « J’enfante tous les jours les enfants de Dieu, jusqu’à ce que Jésus-Christ mon Fils soit formé en eux dans la plénitude de son âge ».
 
-`[Gal, IV, 19.]`
+`Gal, IV, 19.`
 
 Saint Augustin, se surpassant lui-même, et tout ce que je viens de dire, affirme que tous les prédestinés, pour être conformes à l’image du Fils de Dieu, sont en ce monde cachés dans le sein de la très sainte Vierge, où ils sont gardés, nourris, entretenus et agrandis par cette bonne Mère, jusqu’à ce qu’elle les enfantes à la gloire, après la mort, qui est proprement le jour de leur naissance, comme l’Église appelle la mort des justes. O mystère de grâce inconnu aux réprouvés, et peu connu des prédestinés !
 
@@ -217,7 +217,7 @@ Dieu le Saint-Esprit veut se former en elle et par elle des élus, et lui dit :
 
 > In electis meis mitte radices
 
-`[Eccli. XXIV, 13.]`
+`Eccli. XXIV, 13.`
 
  Jetez, ma bien-aimée et mon Épouse, les racines de toutes vos vertus dans mes élus, afin qu’ils croissent de vertu en vertu et de grâce en grâce. J’ai pris tant de complaisance en vous, lorsque vous viviez sur la terre dans la pratique des plus sublimes vertus, que je désire encore vous trouver sur la terre, sans que vous cessiez d’être dans le Ciel. Reproduisez-vous pour cet effet dans mes élus : que je voie en eux avec complaisance les racines de votre foi invincible, de votre humilité profonde, de votre mortification universelle, de votre oraison sublime, de votre charité ardente, de votre espérance ferme et de toutes vos vertus. Vous êtes toujours mon émois aussi fidèle, aussi pure et aussi féconde que jamais : que votre foi me donne des fidèles ; que votre pureté me donne des vierges ; que votre fécondité me donne des élus et des temples.
 
@@ -413,8 +413,32 @@ disent saint Anselme, saint Bernard, saint Bernardin, saint Bonaventure, n'a-tel
 
 Mais où est-ce que ma plume me conduit ? Pourquoi m'arrêter ici à prouver une chose si visible ? Si l'on ne veut pas qu'on se dise esclave de la sainte Vierge, qu'importe ! Qu'on se fasse et qu'on se dise esclaves de Jésus-Christ, c'est l'être de la sainte Vierge, puisque Jésus est le fruit et la gloire de Marie. C'est ce qu'on fait parfaitement par la dévotion dont nous parlerons dans la suite.
 
+*Troisième vérité.* Nos meilleures actions sont ordinairement souillées et corrompues par le mauvais fonds qui est en nous. Quand on met de l'eau nette et claire dans un vaisseau qui sent mauvais, ou du vin dans un tonneau dont l'intérieur est gâté par un autre vin qu'on y a mis, l'eau claire et le bon vin sont gâtés et en prennent aisément la mauvaise odeur. De même, quand Dieu met dans le vaisseau de note âme, gâtée par le péché originel et actuel, ses grâces et rosées célestes ou le vin délicieux de son amour, ses dons sont ordinairement souillés par le mauvais levain et le mauvais fonds que le péché a laissé en nous ; nos actions, celles même des vertus les plus sublimes, s'en ressentent. Il est donc d'une très grande importance pour acquérir la perfection, qui ne s'acquiert que par l'union à Jésus-Christ, de nous vider de ce qu'il y a de mauvais en nous: autrement, ?Notre-Seigneur, qui est infiniment pur, et hait infiniment la moindre souillure dans l'âme, nous rejettera de devant ses yeux, et ne s'unira point à nous.
 
+Pour nous vider de nous-même, il faut: 1° bien connaitre, par la lumière du Saint-Esprit, notre mauvais fonds, notre incapacité a tout bien utile au salut, notre faiblesse en toutes choses, notre inconstance en tout temps, notre indignité de toute grâce, et notre iniquité en tout lieu. Le péché de notre premier père nous a tous gâtés, aigris, élevés et corrompus, comme le levain aigrit, élève  et corrompt la pâte où il est mis. Les péchés actuels que nous avons commis, soit mortels, soit véniels, quelque pardonnés qu'ils soient, ont augmenté notre concupiscence, notre faiblesse, notre inconstance et notre corruption, et ont laissé de mauvais restes dans notre âme. Nos corps sont si corrompus, qu'ils sont appelés par le Saint-Esprit corps de péché, conçus dans le péché, nourris dans le péché et capable de tout péché, corps sujets à mille et mille maladies, qui se corrompent de jour en jour, et qui n'engendrent que de la vermine et de la corruption.
 
+Notre âme, unie à notre corps, est devenue si charnelle, qu'elle est appelée chair:
 
+> Toute chair ayant corrompu sa voie.
 
+`Genèse VI, 12.`
 
+Nous n'avons pour partage que l'orgueil et l'aveuglement dans l'esprit, l'endurcissement dans le cœur, la faiblesse et l'inconstance dans l'âme, la concupiscence, les passions révoltées et les maladies dans le corps. Nous sommes naturellement plus orgueilleux que les paons, plus attachés à la terre que les crapauds, plus vilains que les boucs, plus envieux que des serpents, plus gourmands que des pourceaux, plus colère que des tigres et plus paresseux que des tortues, plus faibles que des roseaux, et plus inconstants que des girouettes. Nous n'avons dans notre fonds que le néant et le péché, et ne méritons que l'ire de Dieu et l'enfer éternel.
+
+Après cela, faut-il s'étonner si Notre-Seigneur a dit que celui qui voulait le suivre devait renoncer à soit-même et haïr son âme ; que celui qui aimerait son âme la perdrait, et que celui qui la haïrait la sauverait `S. Jean, XII, 25`? Cette Sagesse infinie qui ne donne pas de commandements sans raison, ne nous ordonne de nous haïr nous-même que parce que nous sommes grandement dignes de haine : rien de si digne d'amour que Dieu, rien de si digne de haine que nous-même.
+
+2° Pour nous vider de nous-même, il faut tous les jours mourrir à nous-même : c'est-à-dire qu'il faut renoncer aux opérations des puissances de note âme et des sens de notre corps, qu'il faut voir comme si on ne voyait point, entendre comme si on n'entendait point, se servir des choses de ce monde comme si on ne s'en servait point, ce que saint Paul appelle mourrir tous les jours:
+
+> Quotidie morior
+
+`I Cor. XV, 21.`
+
+Si le grain de froment tombant en terre ne meurt, il demeure seul et ne produit point de fruit qui soit bon:
+
+> Nisi granum frumenti cadens in terram mortuum fuerit, ipsum solum manet.
+
+`S. Jean, XII, 24`
+
+Si nous mourrons à nous-même, et si nos dévotions les plus saintes ne nous portent à cette mort nécéssaire et féconde, nous ne porteront point de fruit qui vaille, et nos dévotions nous deviendront inutiles ; toutes nos justices seront souillées par notre amour-propre et notre propre volonté, ce qui fera que Dieu aura en abomination les plus grands sacrifices et les meilleures actions que nous puissions faire ; qu'à notre mort nous nous trouverons les mains vides de vertus et de mérites, et que nous n'aurons pas une étincelle du pur amour, qui n'est communiqué qu'aux âmes mortes à elles-mêmes, dont la vie est cachée avec Jésus-Christ en Dieu.
+
+3° Il faut choisir, parmi toutes les dévotions à la très sainte Vierge, celle qui nous porte le plis à cette mort à nous-mêmes, comme étant la meilleure et la plus sanctifiante ; car il ne faut pas croire que tout ce qui reluit soit or, que tout ce qui est doux soit miel, et que tout ce qui est aisé à faire et pratiqué du plus grand nombre soit sanctifiant. Comme il y a des secrets de nature pour faire en peu de frais et avec facilité des opérations naturelles, de même il y a des secrets dans l'ordre de la grâce pour faire en peu de temps, avec douceur et facilité, des opérations surnaturelles, se vider de soi-même se remplir de Dieu, et devenir parfait.
